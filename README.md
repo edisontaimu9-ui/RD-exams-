@@ -1,1 +1,1 @@
-Thikhale ma Registered Dietitians
+Tikhale ma Registered Dietitians
